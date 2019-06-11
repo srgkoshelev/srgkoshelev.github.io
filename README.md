@@ -1,1 +1,0 @@
-# srgkoshelev.github.io
